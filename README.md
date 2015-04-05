@@ -1,2 +1,0 @@
-# Ejecicio
-Segundo corte
